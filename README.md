@@ -20,7 +20,7 @@ This handwritten content is also for medical students.
 I believe that the best way to learn something is by doing it.
 
 Step 1) Click on Pay( green button )
-Step 2)Fill the details and choose any one method for payment.
+Step 2)Fill the details and choose anyone method for payment.
 Step 2)After payment download pdf by click on download button.
 You will also get downloadable pdf link in your E-mail.
 *Offer is for limited time*
