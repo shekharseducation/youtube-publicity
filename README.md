@@ -10,7 +10,7 @@ https://www.instamojo.com/shekharseducation/?ref=offer_page
 
 https://www.instamojo.com/ShekharsEducation/complete-chemistry-jee-main-jee-advanced-han/?ref=store
 
-*For Physics ( HC verma full hand written solution [ Total number of Pages- 959] )]*
+*For Physics ( HC verma full hand written solution [ Total number of Pages- 959 ] )*
 *Price- ₹ 60*
 
 https://www.instamojo.com/ShekharsEducation/complete-physics-jee-main-jee-advanced-handw/?ref=store
