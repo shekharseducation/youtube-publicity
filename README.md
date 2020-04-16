@@ -1,6 +1,6 @@
 # youtube-publicity
 
-*Complete Physics/Chemistry for JEE Main/ Medical /JEE Advance students and 11th & 12th Board handwritten notes in English*
+*Complete Physics/Chemistry for JEE Main/ Medical /JEE Advance and 11th & 12th Board students handwritten notes in English*
 https://www.instamojo.com/shekharseducation/?ref=offer_page
 
 
