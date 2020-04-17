@@ -30,5 +30,7 @@ Step 3)After payment from any method download pdf by click on download button.
  OR,
 You will also get downloadable pdf link in your E-mail ID.
 
+*Get 70 % Off*
+```USE COUPON CODE : NVDMI```
 *Offer is for limited time*
 *Hurry up!*
