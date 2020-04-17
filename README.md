@@ -7,12 +7,12 @@ https://www.instamojo.com/shekharseducation/?ref=offer_page
 *For Syllabus*
 
 *For Chemistry (Theory and solved all the previous year questions of all chapters for JEE Main/ Medical /JEE Advance and 11th & 12th Board students handwritten notes in English [ Total number of Pages-1887] )*
-*Price- ₹ 25*
+*Price- ₹ 500*
 
 https://www.instamojo.com/ShekharsEducation/complete-chemistry-jee-main-jee-advanced-han/?ref=store
 
 *For Physics (Theory and  HC verma handwritten solution of each Exercise of all Chapters for JEE Main/ Medical /JEE Advance and 11th & 12th Board students  handwritten notes in English [ Total number of Pages- 959 ] )*
-*Price- ₹ 20*
+*Price- ₹ 500*
 
 https://www.instamojo.com/ShekharsEducation/complete-physics-jee-main-jee-advanced-handw/?ref=store
 
